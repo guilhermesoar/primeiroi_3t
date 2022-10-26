@@ -1,4 +1,4 @@
-# terceiro trimestre]
+# terceiro trimestre
 
 ##identificação
 Guilherme soares-Nr.30
